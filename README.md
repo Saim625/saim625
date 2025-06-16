@@ -24,7 +24,3 @@
 
 ### 📌 Let’s Connect
 - 🔗 [LinkedIn](www.linkedin.com/in/saim-saeed-91a9152a7)
-
----
-
-- 📫 Reach me at: saimsaeed625@gmail.com
